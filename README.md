@@ -1,2 +1,3 @@
 # Perkenalan Introduction
-Perkenalkan, Nama saya adalah Lantaramada Thanagari
+Perkenalkan, Nama saya adalah Lantaramada Thanagari, Saya adalah seorang Karakter Virtual Independen dari Indonesia, Nama "Lantaramada Thanagari" merupakan nama buatan saya yang dipilih untuk menjadi media penyampaian informasi, mengingat dalam dunia internet, informasi pribadi merupakan hal yang paling sensitif, oleh karena itu saya membuat karakter virtual sebagai pengganti orang asli, hal ini bertujuan untuk mengantisipasi pencurian informasi maupun pencemaran nama baik dari segi visual maupun audio, Salam kenal semua, Kalian bisa panggil saya "Lantaramada" ataupun "Thanagari", lebih baik namanya tidak disingkat.
+
