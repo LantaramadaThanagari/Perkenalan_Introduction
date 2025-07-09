@@ -1,2 +1,2 @@
-# Perkenalan_Introduction
-Hi
+# Perkenalan Introduction
+Perkenalkan, Nama saya adalah Lantaramada Thanagari
