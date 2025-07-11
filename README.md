@@ -13,4 +13,14 @@ Sejak Tahun 2018 Masehi hingga saat ini saya secara mandiri sebagai pelestari ak
 # Proyek yang sedang dikerjakan
 Saya saat ini sedang mengerjakan berbagai usaha... semoga dengan langkah ini bisa bermanfaat bagi kehidupan
 ### Seratan Aksara
+Coming Soon - Akan Datang
 ### 9 Nada Semesta
+Coming Soon - Akan Datang
+### Brakhati Font
+On Progress - Sedang Dikerjakan
+### Pengembangan 3D Karakter Virtual
+Coming Soon - Akan Datang
+### Proyek OpenUtau Berbasis Suara Dari Lantaramada Thanagari
+Coming Soon - Akan Datang
+### Karya Lagu Berbasis Musikal Video
+Coming Soon - Akan Datang
