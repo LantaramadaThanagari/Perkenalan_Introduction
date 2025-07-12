@@ -12,30 +12,34 @@ dan itulah nama yang sudah kurencanakan sejak awal untuk segala usaha untuk memb
 Sejak Tahun 2018 Masehi hingga saat ini saya secara mandiri sebagai pelestari aksara, yakni upaya yang dilakukan untuk melestarikan suatu aksara, Dulu saya sangat hafal seluruh aksara di indonesia, namun setelah mengetahui begitu banyaknya aksara di indonesia maupun di berbagai belahan bumi ini, saya sedang melakukan suatu upaya untuk merangkul seluruh aksara yang ada di semesta ini. Berpikir dan memahami hal apa yang bisa menaungi seluruh aksara tersebut, mengingat informasinya pun sangat terbatas untuk penelusuran, sehingga berpikir keras untuk tindakanku menjadi hal nyata.
 # Proyek yang sedang dikerjakan
 Saya saat ini sedang mengerjakan berbagai usaha... semoga dengan langkah ini bisa bermanfaat bagi kehidupan
-# Total Proyek: 6
+# Total Proyek Saat Ini: 6
 ### Seratan Aksara
-Rangkuman: Solusi Alternatif Aplikasi Luring Untuk Dukungan Sistem Penulisan Aksara Yang Mampu Membangkitkan Pelestarian Aksara Secara Masif Dengan Menggunakan Teknologi PapanKetik Yang Dirancang Khusus Untuk Mempermudah Akses Informasi Aksara, Jalinan Pendekatan Antar Bangsa, Penelitian Aksara, Pemulihan Aksara, Pelestarian Aksara, Memperbanyak Karya Aksara, Edukasi Aksara.
+Rangkuman: Solusi Alternatif Aplikasi Luring Untuk Dukungan Sistem Penulisan Aksara Yang Mampu Membangkitkan Pelestarian Aksara Secara Masif Dengan Menggunakan Teknologi PapanKetik Yang Dirancang Khusus Untuk Mempermudah Akses Informasi Aksara, Jalinan Pendekatan Antar Bangsa, Penelitian Aksara, Pemulihan Aksara, Pelestarian Aksara, Memperbanyak Karya Aksara, Edukasi Aksara Berbasis Tatanan Ide Aspirasi Yang Dapat Dibuat Oleh Pengguna Aplikasi Serta Dapat Menjadi Gratis Dan Sumber Terbuka
 #### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
 Belum Tersedia
 ### Sembilan Tangga Nada Semesta
-Rangkuman: Penelitian Tangga Nada Untuk Mengungkapkan Proses Terbentuknya Untuk Membuka Cakupan Alam Semesta Yang Seluas-luasnya 
+Rangkuman: Penelitian Tangga Nada Untuk Mengungkapkan Proses Terbentuknya Untuk Membuka Cakupan Alam Semesta Yang Seluas-luasnya Yang Membuka Alur Untuk Kesadaran Makhluk Ciptaan Tuhan
 #### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
 Belum Tersedia
 ### Brakhati Font
-On Progress - Sedang Dikerjakan
+Rangkuman: Penelitian Perancangan Desain Bentuk Huruf Latin Yang Diuji Dalam Penyaringan Energi Untuk Membangkitkan Kesadaran
+#### On Progress - Sedang Dikerjakan
 ##### Tautan Selengkapnya
 Belum Tersedia
 ### Pengembangan 3D Karakter Virtual
-Coming Soon - Akan Datang
+Rangkuman: Proyek Kepemilikan Pribadi Proses Pembuatan Model Dua Dimensi Menjadi Tiga Dimensi Dalam Membangun Prasarana Digital Yang Efisien Untuk Mempermudah Aktivitas Dan Menunjukkan Identitas Yang Dapat Diakui Dan Diterima Masyarakat
+#### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
 Belum Tersedia
 ### Proyek OpenUtau Berbasis Suara Dari Lantaramada Thanagari
-Coming Soon - Akan Datang
+Rangkuman: Proyek Kepemilikan Pribadi Lantaramada Thanagari Untuk Tujuan kegunaan Dalam Proses Pembuatan Karya Sebagai Alternatif Penyelesaian Masalah Dan Mencegah Ketidaktepatan Atas Menentukan Letak Tangga Nada Yang Diisi Suara Oleh Lantaramada Thanagari Dengan Orientasi Memberikan Hak Yang Seadiil-adilnya Antara Pribadi Dan Masyarakat
+#### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
 Belum Tersedia
 ### Karya Lagu Dengan Musikal Video Berbasis Aksara
-Coming Soon - Akan Datang
+Rangkumman: Karya Lagu Yang Dipelopori Oleh Lantaramada Thanagari Untuk Memberikan Pengajaran Kesadaran Melalui Lagu Yang Berbasis Tulisan Aksara Guna Melestarikan Aksara
+#### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
 Belum Tersedia
