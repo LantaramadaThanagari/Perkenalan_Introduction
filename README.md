@@ -15,9 +15,9 @@ Saya saat ini sedang mengerjakan berbagai usaha... semoga dengan langkah ini bis
 # Donasi
 Apabila Kalian sangat senang dengan proyek saat ini yang sedang dikembangkan, silakan berdonasi di link berikut... namun apablia pun tidak sanggup berdonasi, saya menghargai keputusan kalian, karena segala sesuatu bukanlah semuanya menggunakan uang, tapi niat untuk ketulusan , harapan dan doa kalian, itulah yang bisa membuatku hidup dan melanjutkan kontribusi di allam semesta ini, Apabila ingin bekerja sama denganku, silakan hubungi saya.
 #### Trakteer
-Via Donasi Trakteer: 
+Via Donasi Trakteer: https://trakteer.id/Lantaramada
 #### Ko-fi
-Via Donasi Ko-fi:
+Via Donasi Ko-fi: Error Page
 #### Kerjasama Lebih lanjut
 Silakan Hubungi Saya di link: Belum Tersedia
 # Total Proyek Saat Ini: 6
