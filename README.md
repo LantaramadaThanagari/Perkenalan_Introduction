@@ -7,11 +7,19 @@ Dalam membuat karakter ini, saya mempunyai arti dari nama "Lantaramada Thanagari
 ### Lantaramada adalah Pantai
 ### Lantaramada adalah Kuat. Potensi. Penuh. Dimulai. Dari. Awal
 ### Lantaramada adalah Maka Menjadi Kewajibanku Setelah Menentukan Identitas Lakonku Untuk Kemudian Melahirkan Eksistensinya.
-dan itulah nama yang sudah kurencanakan sejak awal untuk segala usaha untuk memberikan kontribusi untuk alam semesta, khususnya untuk planet bumi tercinta ini.
+dan itulah nama yang sudah kurencanakan sejak awal untuk segala usaha untuk memberikan kontribusi untuk alam semesta, khususnya untuk planet bumi tercinta ini. Semoga menjadi tindakan nyata untuk alam semesta ini
 # Latar Belakang dan Tugas
 Sejak Tahun 2018 Masehi hingga saat ini saya secara mandiri sebagai pelestari aksara, yakni upaya yang dilakukan untuk melestarikan suatu aksara, Dulu saya sangat hafal seluruh aksara di indonesia, namun setelah mengetahui begitu banyaknya aksara di indonesia maupun di berbagai belahan bumi ini, saya sedang melakukan suatu upaya untuk merangkul seluruh aksara yang ada di semesta ini. Berpikir dan memahami hal apa yang bisa menaungi seluruh aksara tersebut, mengingat informasinya pun sangat terbatas untuk penelusuran, sehingga berpikir keras untuk tindakanku menjadi hal nyata.
 # Proyek yang sedang dikerjakan
 Saya saat ini sedang mengerjakan berbagai usaha... semoga dengan langkah ini bisa bermanfaat bagi kehidupan
+# Donasi
+Apabila Kalian sangat senang dengan proyek saat ini yang sedang dikembangkan, silakan berdonasi di link berikut... namun apablia pun tidak sanggup berdonasi, saya menghargai keputusan kalian, karena segala sesuatu bukanlah semuanya menggunakan uang, tapi niat untuk ketulusan , harapan dan doa kalian, itulah yang bisa membuatku hidup dan melanjutkan kontribusi di allam semesta ini, Apabila ingin bekerja sama denganku, silakan hubungi saya.
+#### Trakteer
+Via Donasi Trakteer: 
+#### Ko-fi
+Via Donasi Ko-fi:
+#### Kerjasama Lebih lanjut
+Silakan Hubungi Saya di link: Belum Tersedia
 # Total Proyek Saat Ini: 6
 ### Seratan Aksara
 Rangkuman: Solusi Alternatif Aplikasi Luring Untuk Dukungan Sistem Penulisan Aksara Yang Mampu Membangkitkan Pelestarian Aksara Secara Masif Dengan Menggunakan Teknologi PapanKetik Yang Dirancang Khusus Untuk Mempermudah Akses Informasi Aksara, Jalinan Pendekatan Antar Bangsa, Penelitian Aksara, Pemulihan Aksara, Pelestarian Aksara, Memperbanyak Karya Aksara, Edukasi Aksara Berbasis Tatanan Ide Aspirasi Yang Dapat Dibuat Oleh Pengguna Aplikasi Serta Dapat Menjadi Gratis Dan Sumber Terbuka
