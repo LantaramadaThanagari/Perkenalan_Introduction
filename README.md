@@ -9,7 +9,7 @@ Dalam membuat karakter ini, saya mempunyai arti dari nama "Lantaramada Thanagari
 ### Lantaramada adalah Maka Menjadi Kewajibanku Setelah Menentukan Identitas Lakonku Untuk Kemudian Melahirkan Eksistensinya.
 dan itulah nama yang sudah kurencanakan sejak awal untuk segala usaha untuk memberikan kontribusi untuk alam semesta, khususnya untuk planet bumi tercinta ini. Semoga menjadi tindakan nyata untuk alam semesta ini
 # Latar Belakang dan Tugas
-Sejak Tahun 2018 Masehi hingga saat ini saya secara mandiri sebagai pelestari aksara, yakni upaya yang dilakukan untuk melestarikan suatu aksara, Dulu saya sangat hafal seluruh aksara di indonesia, namun setelah mengetahui begitu banyaknya aksara di indonesia maupun di berbagai belahan bumi ini, saya sedang melakukan suatu upaya untuk merangkul seluruh aksara yang ada di semesta ini. Berpikir dan memahami hal apa yang bisa menaungi seluruh aksara tersebut, mengingat informasinya pun sangat terbatas untuk penelusuran, sehingga berpikir keras untuk tindakanku menjadi hal nyata.
+Sejak Tahun 2018 Masehi hingga saat ini saya secara mandiri sebagai pelestari aksara, yakni upaya yang dilakukan untuk melestarikan suatu aksara, Dulu saya sangat hafal seluruh aksara di indonesia, namun setelah mengetahui begitu banyaknya aksara di indonesia maupun di berbagai belahan bumi ini, saya sedang melakukan suatu upaya untuk merangkul seluruh aksara yang ada di semesta ini. Berpikir dan memahami hal apa yang bisa menaungi seluruh aksara tersebut, mengingat informasinya pun sangat terbatas untuk penelusuran, sehingga berpikir keras untuk tindakanku menjadi hal nyata dan berbagai kinerja selanjutnya
 # Proyek yang sedang dikerjakan
 Saya saat ini sedang mengerjakan berbagai usaha... semoga dengan langkah ini bisa bermanfaat bagi kehidupan
 # Donasi
@@ -51,3 +51,4 @@ Rangkumman: Karya Lagu Yang Dipelopori Oleh Lantaramada Thanagari Untuk Memberik
 #### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
 Belum Tersedia
+## Semoga setiap inti makhluk hidup mendapatkan kesadaran di alam semesta ini, hingga memahami bahwasanya kita harus bersatu untuk bekerja sama agar membuat kehidupan layak dan kesadaran di masa yang akan datang, Bangkitlah Wahai Makhluk Ciptaan Tuhan, Sudah saatnya kita menyadari kesadaran diri dan mulai hingga konsiisten dalam membentuk usaha jangka panjang.
