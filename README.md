@@ -25,30 +25,30 @@ Silakan Hubungi Saya di link: Belum Tersedia
 Rangkuman: Solusi Alternatif Aplikasi Luring Untuk Dukungan Sistem Penulisan Aksara Yang Mampu Membangkitkan Pelestarian Aksara Secara Masif Dengan Menggunakan Teknologi PapanKetik Yang Dirancang Khusus Untuk Mempermudah Akses Informasi Aksara, Jalinan Pendekatan Antar Bangsa, Penelitian Aksara, Pemulihan Aksara, Pelestarian Aksara, Memperbanyak Karya Aksara, Edukasi Aksara Berbasis Tatanan Ide Aspirasi Yang Dapat Dibuat Oleh Pengguna Aplikasi Serta Dapat Menjadi Gratis Dan Sumber Terbuka
 #### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
-Belum Tersedia
+Link Belum Tersedia
 ### Sembilan Tangga Nada Semesta
 Rangkuman: Penelitian Tangga Nada Untuk Mengungkapkan Proses Terbentuknya Untuk Membuka Cakupan Alam Semesta Yang Seluas-luasnya Yang Membuka Alur Untuk Kesadaran Makhluk Ciptaan Tuhan
 #### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
-Belum Tersedia
+Link Belum Tersedia
 ### Brakhati Font
 Rangkuman: Penelitian Perancangan Desain Bentuk Huruf Latin Yang Diuji Dalam Penyaringan Energi Untuk Membangkitkan Kesadaran
 #### On Progress - Sedang Dikerjakan
 ##### Tautan Selengkapnya
-Belum Tersedia
+Link Belum Tersedia
 ### Pengembangan 3D Karakter Virtual
 Rangkuman: Proyek Kepemilikan Pribadi Proses Pembuatan Model Dua Dimensi Menjadi Tiga Dimensi Dalam Membangun Prasarana Digital Yang Efisien Untuk Mempermudah Aktivitas Dan Menunjukkan Identitas Yang Dapat Diakui Dan Diterima Masyarakat
 #### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
-Belum Tersedia
+Link Belum Tersedia
 ### Proyek OpenUtau Berbasis Suara Dari Lantaramada Thanagari
 Rangkuman: Proyek Kepemilikan Pribadi Lantaramada Thanagari Untuk Tujuan kegunaan Dalam Proses Pembuatan Karya Sebagai Alternatif Penyelesaian Masalah Dan Mencegah Ketidaktepatan Atas Menentukan Letak Tangga Nada Yang Diisi Suara Oleh Lantaramada Thanagari Dengan Orientasi Memberikan Hak Yang Seadiil-adilnya Antara Pribadi Dan Masyarakat
 #### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
-Belum Tersedia
+Link Belum Tersedia
 ### Karya Lagu Dengan Musikal Video Berbasis Aksara
 Rangkumman: Karya Lagu Yang Dipelopori Oleh Lantaramada Thanagari Untuk Memberikan Pengajaran Kesadaran Melalui Lagu Yang Berbasis Tulisan Aksara Guna Melestarikan Aksara
 #### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
-Belum Tersedia
+Link Belum Tersedia
 ## Semoga setiap inti makhluk hidup mendapatkan kesadaran di alam semesta ini, hingga memahami bahwasanya kita harus bersatu untuk bekerja sama agar membuat kehidupan layak dan kesadaran di masa yang akan datang, Bangkitlah Wahai Makhluk Ciptaan Tuhan, Sudah saatnya kita menyadari kesadaran diri dan mulai hingga konsiisten dalam membentuk usaha jangka panjang.
