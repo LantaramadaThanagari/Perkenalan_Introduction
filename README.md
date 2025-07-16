@@ -51,4 +51,5 @@ Rangkumman: Karya Lagu Yang Dipelopori Oleh Lantaramada Thanagari Untuk Memberik
 #### Coming Soon - Akan Datang
 ##### Tautan Selengkapnya
 Link Belum Tersedia
-## Semoga setiap inti makhluk hidup mendapatkan kesadaran di alam semesta ini, hingga memahami bahwasanya kita harus bersatu untuk bekerja sama agar membuat kehidupan layak dan kesadaran di masa yang akan datang, Bangkitlah Wahai Makhluk Ciptaan Tuhan, Sudah saatnya kita menyadari kesadaran diri dan mulai hingga konsiisten dalam membentuk usaha jangka panjang.
+# Total Proyek Yang Sudah Selesai : 0
+### Semoga setiap inti makhluk hidup mendapatkan kesadaran di alam semesta ini, hingga memahami bahwasanya kita harus bersatu untuk bekerja sama agar membuat kehidupan layak dan kesadaran di masa yang akan datang, Bangkitlah Wahai Makhluk Ciptaan Tuhan, Sudah saatnya kita menyadari kesadaran diri dan mulai hingga konsiisten dalam membentuk usaha jangka panjang.
